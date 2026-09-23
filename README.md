@@ -1,0 +1,1 @@
+# manual_serieblanca_pr-ctica
