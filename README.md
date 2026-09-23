@@ -1,1 +1,1 @@
-# manual_serieblanca_pr-ctica
+# manual_serieblanca_practica
